@@ -1,1 +1,2 @@
 "Once upon a time, an alien and a cowboy met in a coffee shop..."
+"Expect this was no ordinary coffee shop"
